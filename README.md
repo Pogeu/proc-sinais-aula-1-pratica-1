@@ -2,7 +2,7 @@
 
 ## KAKAKAKAAKKA
 
-![images](https://github.com/user-attachments/assets/e57025b8-30c3-4def-95c2-e7c7dd7c95db)
+![kes7Et](https://github.com/user-attachments/assets/363c443f-ae72-4852-a314-697336c11c49)
 ![sonfys-shrek](https://github.com/user-attachments/assets/24500a8e-3ab8-4bbb-8d7b-ab55c48da520)
 
 
